@@ -32,11 +32,8 @@
 « Bonté divine ! Ça doit être vrai ! » dit Louise. « On n’a pas le temps pour la poésie. Allons-y ! » |
 | 3:03 | Et Petit Poulet, Pauline la poule, Carine la canne, Louise l’oie et Roger le pigeon courent ensemble sur la route vers la ville. |
 | 3:12 | Sur la rue principale, ils rencontrent Gérard le renard. Gérard est assis dans un café, en train d’écrire sur son laptop. |
-| 3:21 | « Bonjour mes amis ! » dit Gérard. « Où allez-vous ? Pourquoi avez-vous si peur ? »
-« LE CIEL EST EN TRAIN DE TOMBER ! LE CIEEEEEEL EST EN TRAIN DE TOOOOOOMBER ! » crient-ils tous ensemble. |
-| 3:38 | « Vraiment ? Comment le savez-vous ? » demande Gérard.
-« NOUS L’AVONS VU SUR INTERNET ! » crient-ils tous.
-« Ouah ! Alors ça doit être vrai ! » dit le renard. « Mais ne vous inquiétez pas, les amis, je connais la cachette parfaite. Suivez-moi ! » |
+| 3:21 | « Bonjour mes amis ! » dit Gérard. « Où allez-vous ? Pourquoi avez-vous si peur ? » « LE CIEL EST EN TRAIN DE TOMBER ! LE CIEEEEEEL EST EN TRAIN DE TOOOOOOMBER ! » crient-ils tous ensemble. |
+| 3:38 | « Vraiment ? Comment le savez-vous ? » demande Gérard. « NOUS L’AVONS VU SUR INTERNET ! » crient-ils tous. « Ouah ! Alors ça doit être vrai ! » dit le renard. « Mais ne vous inquiétez pas, les amis, je connais la cachette parfaite. Suivez-moi ! » |
 | 3:59 | Gérard mène tout le monde à travers le village, le long de la route, à travers le champ et en haut d’une colline. Au sommet de la colline il y a une grande grotte sombre. |
 | 4:13 | « Entrez ! Entrez ! » dit Gérard. « Il y a assez de place pour tout le monde ! Le ciel ne nous tombera pas dessus ici. Nous sommes en sécurité. » |
 | 4:27 | Le lendemain matin, Petit Poulet et ses amis ont disparu. La grotte est vide.  |
