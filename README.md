@@ -8,8 +8,7 @@
 | 0:23 | Il n’est ni grand, ni petit. Il n’est ni gros, ni maigre. Il n’est ni intelligent ni stupide. Petit Poulet est un poulet tout à fait normal. |
 | 0:35 | Par une matinée tout à fait normale, Petit Poulet mange son petit-déjeuner dans la cuisine. Il aime les toasts avec du beurre et le café à la crème. |
 | 0:46 | Il lit les nouvelles. Il voit une histoire terrifiante avec un titre terrifiant, qui dit : LE CIEL EST EN TRAIN DE TOMBER ! |
-| 0:56 | Il a si peur qu’il laisse tomber son toast dans son café. Plouf !
-« Le ciel est en train de tomber ! LE CIEL EST EN TRAIN DE TOMBER ! Je dois prévenir tout le monde ! » crie Petit Poulet. |
+| 0:56 | Il a si peur qu’il laisse tomber son toast dans son café. Plouf ! « Le ciel est en train de tomber ! LE CIEL EST EN TRAIN DE TOMBER ! Je dois prévenir tout le monde ! » crie Petit Poulet. |
 | 1:10 | D’abord il envoie l’histoire par courriel à ses mille amis les plus proches. Puis il court dans la rue pour prévenir tous les autres. |
 | 1:20 | La première personne qu’il rencontre dans la rue est Pauline la poule. Elle revient du supermarché. |
 | 1:27 | « Bonjour, Petit Poulet ! » dit Pauline. « Où vas-tu ? Pourquoi as-tu si peur ? »
