@@ -2,6 +2,11 @@
 
 [French Experiment](https://www.thefrenchexperiment.com/stories) | [Fable Cottage](https://www.thefablecottage.com/french)
 
+- Go to random time in video
+- Listen
+- Try and guess what sentence is
+- Then look at time stamp to verify
+
 | Timestamp | Paragraph | 
 |-----------|-----------|
 | 0:10 | Laissez-moi vous raconter l’histoire d'un Poulet. Ses amis l’appellent Petit Poulet. Petit Poulet vit dans une petite maison de poulet normale, dans une petite ville normale. |
